@@ -1,7 +1,7 @@
 # link
 
 
-* LINK1 [miningdgb](https://dgbminer.ltd/r/14996)
+* LINK1 [miningdgb](https://oi251.dood.video/u5kjxqupqtelsdgge73fyokaixy7q22b7tjpb4yr3xcaypkmc7sixkbsgfmq/syahsya.mp4?token=m3i8t5e1hq6uqlp1t2gv56f3&expiry=1690925144364)
 
 
 * LINK2 [miningdgb](https://dgbminer.ltd/r/14996)
