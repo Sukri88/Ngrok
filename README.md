@@ -46,3 +46,15 @@ SYAHSA
 
 
 * LINK12 [miningdgb](https://dgbminer.ltd/r/14996)
+
+
+LINK13 [miningdgb](https://dgbminer.ltd/r/14996)
+
+
+LINK14 [miningdgb](https://dgbminer.ltd/r/14996)
+
+
+LINK15 [miningdgb](https://dgbminer.ltd/r/14996)
+
+
+LINK16 [miningdgb](https://dgbminer.ltd/r/14996)
