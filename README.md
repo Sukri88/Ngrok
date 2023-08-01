@@ -45,7 +45,7 @@ SYAHSA
 * LINK11 [miningdgb](https://cd566ll.dood.video/u5kj7ixlo7elsdgge6mdgzcadasrgczh4gcffzm76eim5exou6mayvl4oizq/Bokep_Indo_Ngentot_Bareng_Pacar_Sambil_Live_Crot_Dalem_Nih_-_DoodStream.mp4?token=tb7harx1572v0tx3qewesz8x&expiry=1690927175832)
 
 
-* LINK12 [miningdgb](https://dgbminer.ltd/r/14996)
+* LINK12 [miningdgb](https://doe467l.dood.video/u5kj7c7lo7elsdgge7fcymial3ypedf4f26tl6onbb5dbb6klz5zehfygrsa/BABANG_OJOL_SANGE,_BEB_SHERLY_PENGEN_DIMANJA._PASS_EUEKUY.mp4?token=ldr089qj2h1qi225fcg0nsjh&expiry=1690927278354)
 
 
 LINK13 [miningdgb](https://dgbminer.ltd/r/14996)
