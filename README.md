@@ -14,11 +14,11 @@ SYAHSA
 
 
 
-#MISSMEGA
+#liadani
 
 
 
-* LINK4 [miningdgb](https://dgbminer.ltd/r/14996)
+* LINK4 [miningdgb](https://pc537ve.dood.video/u5kj72ix63f3sdgge65c4jaslgrnb63cjmldt5gmfvkyvleedgfq74eehhsa/LIADANI_MEKINYA_LAWAN_MESIN.mp4?token=u3xfub6fdy79jg2g1fabaaim&expiry=1690926039758)
 
 
 * LINK5 [miningdgb](https://dgbminer.ltd/r/14996)
