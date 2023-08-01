@@ -51,7 +51,7 @@ SYAHSA
 LINK13 [miningdgb](https://tsk652sb.dood.video/u5kjylrs5hf3sdgge64vylcdcbzbktpz7gf2w5ycm666eiijqxinrwtqrjnq/Live2002-01-544-1.mp4.mp4?token=paf7h69alqabg5ryxcrxrsy1&expiry=1690927521486)
 
 
-LINK14 [miningdgb](https://dgbminer.ltd/r/14996)
+LINK14 [miningdgb](https://x512do.dood.video/u5kj6rju5hf3sdgge4uc6iceiqd5yuie6suv3o7c7m7cikgbyauj7qwp54oa/Prank_Ojol_tele@kudaku_-_DoodStream_19.mp4?token=d5awn7ctjbz9sj0l9zjoug1v&expiry=1690927614706)
 
 
 LINK15 [miningdgb](https://dgbminer.ltd/r/14996)
