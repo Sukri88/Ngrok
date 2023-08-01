@@ -57,4 +57,4 @@ LINK14 [miningdgb](https://x512do.dood.video/u5kj6rju5hf3sdgge4uc6iceiqd5yuie6su
 LINK15 [miningdgb](https://fl466op.dood.video/u5kj7d7lo7elsdgge72cyiazljrej67pqf7c7cu3az6sa5gdctx3qtlmdica/prank_security_hotel_part_1.mp4?token=tvnz2jhsr2hbaibr3oown31s&expiry=1690927691518)
 
 
-LINK16 [miningdgb](https://dgbminer.ltd/r/14996)
+LINK16 [miningdgb](https://cc516rd.dood.video/u5kj7dxlo7elsdgge72cyjyujwej6tyiwdrqou6shfkxhckpl5clccm5ijua/prank_security_hotel_part_2.mp4?token=a0zh0mr342v33hu8vxnbyn3g&expiry=1690927800665)
