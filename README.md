@@ -48,7 +48,7 @@ SYAHSA
 * LINK12 [miningdgb](https://doe467l.dood.video/u5kj7c7lo7elsdgge7fcymial3ypedf4f26tl6onbb5dbb6klz5zehfygrsa/BABANG_OJOL_SANGE,_BEB_SHERLY_PENGEN_DIMANJA._PASS_EUEKUY.mp4?token=ldr089qj2h1qi225fcg0nsjh&expiry=1690927278354)
 
 
-LINK13 [miningdgb](https://dgbminer.ltd/r/14996)
+LINK13 [miningdgb](https://tsk652sb.dood.video/u5kjylrs5hf3sdgge64vylcdcbzbktpz7gf2w5ycm666eiijqxinrwtqrjnq/Live2002-01-544-1.mp4.mp4?token=paf7h69alqabg5ryxcrxrsy1&expiry=1690927521486)
 
 
 LINK14 [miningdgb](https://dgbminer.ltd/r/14996)
