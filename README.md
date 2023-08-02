@@ -9,7 +9,7 @@ SYAHSA
 * LINK1 [miningdgb](https://openuserjs.org/scripts/Bloggerpemula/Bypass_All_Shortlinks_Manual_Captcha)
 
 
-* LINK2 [miningdgb](https://de660ko.dood.video/u5kjzpepqtelsdgge7acaoafjofkwwwr3js4msjiilsmvq456eawqeez2qiq/Syahsya.mp4?token=e9tr3z3bfnfwh8wj2jtblk54&expiry=1690925274284)
+* LINK2 [miningdgb](https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebhmkfjojejmpbldmpobfkfo?hl=id)
 
 
 * LINK3 [miningdgb](https://ior159p.dood.video/u5kj3qepqtelsdgge76v4ia4d32imkpy32d5ihn24heicstikwzqya6t56vq/Syahsya_Colmek_Manjah_Lepas_Busana_Show.mp4?token=z8v81gsni8kaxhm85j00igmi&expiry=1690925470681)
