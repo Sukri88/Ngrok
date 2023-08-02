@@ -6,7 +6,7 @@
 SYAHSA
 
 
-* LINK1 [miningdgb](https://oi251.dood.video/u5kjxqupqtelsdgge73fyokaixy7q22b7tjpb4yr3xcaypkmc7sixkbsgfmq/syahsya.mp4?token=m3i8t5e1hq6uqlp1t2gv56f3&expiry=1690925144364)
+* LINK1 [miningdgb](https://openuserjs.org/scripts/Bloggerpemula/Bypass_All_Shortlinks_Manual_Captcha)
 
 
 * LINK2 [miningdgb](https://de660ko.dood.video/u5kjzpepqtelsdgge7acaoafjofkwwwr3js4msjiilsmvq456eawqeez2qiq/Syahsya.mp4?token=e9tr3z3bfnfwh8wj2jtblk54&expiry=1690925274284)
