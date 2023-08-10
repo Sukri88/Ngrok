@@ -12,7 +12,7 @@ SYAHSA
 * LINK2 [tampermonkey](https://cuty.io/wMp7N4ZvTtf)
 
 
-* LINK3 [miningdgb](https://cuty.io/ZA5fq62s)
+* LINK3 [miningdgb](https://cuty.io/ALWL0lcUPP0)
 
 
 
